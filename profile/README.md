@@ -1,5 +1,7 @@
 # System.out.println("HelloWorld");
 
+「We will shine as brightly as stars」
+
 We are stardustleMC (But this is work not limited to minecraft)
 
 We have no specific goals, so we are free
