@@ -10,4 +10,4 @@ Profile picture by [here](https://www.youtube.com/watch?v=oRJBwaZ59fQ)
 
 # 
 
-Join us? Submit an application to [3962938924@qq.com](mailto:3962938924@qq.com)
+Join us? Submit an application to [stardustle@anerror.top](mailto:stardustle@anerror.top) or [stardustle@outlook.com](mailto:stardustle@outlook.com)
